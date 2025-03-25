@@ -1,0 +1,1 @@
+# kupaglobal-resources
